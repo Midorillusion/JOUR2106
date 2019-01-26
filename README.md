@@ -10,6 +10,6 @@ Here is a test edit
 
 ### head
 
-Here is my photo:
+Here is my photo of **my fav celeb**
 
 ![](https://www.macleans.ca/wp-content/uploads/2013/08/MILEYCYRUS-539x700.jpg)
