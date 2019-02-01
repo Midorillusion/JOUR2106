@@ -7,7 +7,7 @@ Born in 1998, she has traveled all the way from her hometown to Hong Kong and th
 
 * #What would life be without **traveling** and **alcohol**
 * #5'2" ain't that short amirite
-* #For more personal info, check out [my Instagram](https://www.instagram.com/midoriillusion/)
+* #For more personal info, check out [her Instagram](https://www.instagram.com/midoriillusion/)
 
 ***
 
